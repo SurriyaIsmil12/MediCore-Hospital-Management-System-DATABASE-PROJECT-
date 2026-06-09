@@ -1,0 +1,1 @@
+# MediCore-Hospital-Management-System-DATABASE-PROJECT-
